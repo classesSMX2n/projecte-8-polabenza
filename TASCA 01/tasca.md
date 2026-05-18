@@ -1,0 +1,1 @@
+[Link activitat](https://docs.google.com/document/d/1c-6pqz5k84EU3OlNi5s1IJFk-gJ8NzHPKGg0hUWwBWc/edit?usp=sharing)
